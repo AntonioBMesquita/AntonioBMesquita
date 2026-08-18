@@ -28,9 +28,9 @@
 ---
 
 ## ⚡ Sobre mim
-- Esportes (🏈 Futebol Americano ⚽ Futebol e 🏀 Basquete)  
-- 🎬 Filmes e animações  
-- 📚  Livros e HQs 
+- Assistir Esportes (🏈 Futebol Americano ⚽ Futebol e 🏀 Basquete)  
+- 🎬 Assistir Filmes e animações  
+- 📚 Ler Livros e HQs 
 
 ---
 
